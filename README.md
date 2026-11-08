@@ -1,1 +1,1 @@
-hello my name is Artem# arti1
+я тільки вчуся в Гет hello my name is Artem# arti1
